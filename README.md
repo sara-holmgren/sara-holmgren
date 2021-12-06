@@ -1,0 +1,3 @@
+- sara holmgren; 22 ; uk
+- ukc linguistics and with specialisation in ai language processing
+- don't ask me anything bc i don't know
